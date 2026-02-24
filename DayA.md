@@ -7,7 +7,7 @@
 ### 1. Pulley Frente Articulado
 * **Séries/Reps:** 4 x 10
 * **Execução:** Sente-se, segure as alças e puxe para baixo até a altura do peito.
-
+  
 ![Pulley Frente](https://treinomestre.com.br/wp-content/uploads/2023/11/pulley-frente-maquina-articulada.gif)
 
 ### 2. Remada Sentada Cavalinho (Fechado)
