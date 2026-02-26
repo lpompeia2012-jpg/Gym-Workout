@@ -40,9 +40,9 @@
 
 ### 6. Tríceps Unilateral Invertido
 * **Séries/Reps:** 3 x 12 (cada braço)
-* **Execução:** Com pegada supinada (palma para cima), estenda o braço da altura do peito em direção ao quadril.
+* **Execução:** **Execução:** Pegada com a palma da mão para cima (supinada). Estenda o braço para baixo.
 
-![Tríceps Invertido](https://treinototal.com.br/wp-content/uploads/2025/02/triceps-invertido-na-polia-corda.gif)
+![Tríceps Invertido](https://i.pinimg.com/originals/f0/52/78/f05278a6dd2cc9861a34a9baf1b1b767.gif)
 
 ### 7. Tríceps Testa B.W (Barra W)
 * **Séries/Reps:** 4 x 8
