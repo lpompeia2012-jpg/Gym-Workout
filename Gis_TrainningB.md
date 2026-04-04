@@ -10,7 +10,7 @@
 ### 2. Cadeira Flexora
 * **Séries/Reps:** 3 x 12
 * **Execução:** Flexione as pernas trazendo o rolo até embaixo e retorne de forma controlada.
-<img src="https://i.pinimg.com/originals/2f/88/8a/2f888a80d3e49f5e31ee372116437540.gif" width="300">
+<img src="https://www.hipertrofia.org/blog/wp-content/uploads/2024/12/cadeira-flexora.gif" width="300">
 
 ### 3. Elevação Pélvica com Bola
 * **Séries/Reps:** 3 x 12
