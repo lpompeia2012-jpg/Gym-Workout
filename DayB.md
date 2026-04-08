@@ -31,7 +31,7 @@
 ### 5. Agachamento (Livre ou Barra)
 * **Séries/Reps:** 4 x 10
 * **Execução:** Desça o quadril mantendo a coluna reta e os joelhos alinhados com os pés.
-<img src="https://api.smartworkout.app/asset/image/461ec38c-fbd1-4583-9f92-8b08fe1abfcb" width="300">
+<img src="https://www.hipertrofia.org/blog/wp-content/uploads/2024/07/barbell-high-bar-squat.gif" width="300">
 
 ### 6. Avanço no Smith
 * **Séries/Reps:** 3 x 10 (cada perna)
