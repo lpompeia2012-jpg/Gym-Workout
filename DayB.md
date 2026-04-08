@@ -36,7 +36,7 @@
 ### 6. Avanço no Smith
 * **Séries/Reps:** 3 x 10 (cada perna)
 * **Execução:** No Smith, dê um passo à frente e desça o joelho de trás em direção ao chão.
-<img src="https://gymvisual.com/img/p/1/0/2/8/2/10282.gif" width="300">
+<img src="https://www.mundoboaforma.com.br/wp-content/uploads/2020/12/agachamento-afundo-no-smith-machine.gif" width="300">
 
 ### 7. Cadeira Extensora
 * **Séries/Reps:** 3 x 12
